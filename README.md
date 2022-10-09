@@ -10,4 +10,7 @@
 ![Screenshot (1970)](https://user-images.githubusercontent.com/86683029/194745451-2b43ac09-774f-43dc-b82b-397f47d8ee6a.png)
 
 # github-user
+![Screenshot (1974)](https://user-images.githubusercontent.com/86683029/194745482-c8177fed-e8cc-48aa-9628-b55022f6a858.png)
+![Screenshot (1976)](https://user-images.githubusercontent.com/86683029/194745484-16102b70-66f4-4860-bb4b-501bbc455a3e.png)
+
 # good-cheap-fast
