@@ -14,3 +14,5 @@
 ![Screenshot (1976)](https://user-images.githubusercontent.com/86683029/194745484-16102b70-66f4-4860-bb4b-501bbc455a3e.png)
 
 # good-cheap-fast
+![Screenshot (1977)](https://user-images.githubusercontent.com/86683029/194745500-6eaa4c84-1625-4411-bcce-c93ce5df4b9c.png)
+![Screenshot (1978)](https://user-images.githubusercontent.com/86683029/194745501-d82a3708-36ea-4847-9224-6affe5813551.png)
